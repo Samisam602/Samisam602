@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Sami Ullah
-- 👀 I’m interested in to increease my knowldge
+- 👀 I’m interested in to increase my knowldge
 - 🌱 I’m currently learning to build websites and apps
